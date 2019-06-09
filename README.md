@@ -75,7 +75,7 @@ Sério que você curtiu? Que foda! ^^
 - Growth Hacking Samurai
 
 #### `Ricardo`
-- Reconciliation Lux
+- Reconciliation Wizard
 
 ---
 ## Áh, não faltou comida :p
